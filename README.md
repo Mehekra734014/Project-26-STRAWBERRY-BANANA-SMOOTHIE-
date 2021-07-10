@@ -1,0 +1,1 @@
+It is the recipe for Strawberry banana smoothie.
